@@ -5,7 +5,7 @@
 - 📫 How to reach me? Here my mail, contact me for work and have more information: khanhbinh.ngo@gmail.com
 - ⚡ Fun fact: I have had some fun in coding about 2 years ago, and from then, I continuosly learning coding. Give these app more attentions is one of the best part on my journey.
 - I am looking forward to working in your company.
-  One more fun fact: Running is my favourite sport. I started running since I only 14 years old. This is a 10-year-straight hobby. Love to see you on trail.
+- One more fun fact about me: Running is my favourite sport. I started running since I only 14 years old. This is a 10-year-straight hobby. Love to see you on trail.
  
 
 <!---
